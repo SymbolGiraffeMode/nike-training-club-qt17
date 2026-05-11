@@ -1,4 +1,4 @@
-
+Enhance Nike Training Club for macOS with Nike Training Club for macOS vip Script: meal-planning & workout-tracking, the #1 script. Includes meal-planning and workout-tracking for
 
 
 
